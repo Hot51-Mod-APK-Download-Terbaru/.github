@@ -4,7 +4,7 @@ Aplikasi live streaming semakin populer di kalangan pengguna internet, terutama 
 
 ## Tentang Hot51 Mod APK
 
-![hot51-apk-versi-terbaru](https://github.com/user-attachments/assets/122b0a1f-979d-4d68-98cf-4a538d430f91)
+![hot51-apk-versi-terbaru](https://github.com/user-attachments/assets/43dddee2-9714-431a-8061-42d1c227dbda)
 
 *Hot51 Mod APK* adalah aplikasi modifikasi dari Hot51 yang menawarkan pengalaman live streaming tanpa batas. Dalam versi mod ini, pengguna dapat menikmati fitur premium seperti akses ke semua ruangan (*unlocked all rooms*), *unlimited money*, dan tampilan bebas iklan. Karena memberikan kemudahan lebih dibanding versi aslinya, aplikasi ini menjadi pilihan bagi banyak pengguna yang ingin menikmati konten live tanpa harus membayar.
 
